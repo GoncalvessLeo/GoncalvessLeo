@@ -1,4 +1,4 @@
-### Oláa! Eu sou o Leonardo, Bem vindo ao meu perfil!! 👋
+### Oláa! Eu sou o Léo, Bem vindo ao meu perfil!! 👋
 - 😁 Pronomes: Ele/dele
 - 💻 Estudando Deselvolvimento Web Java
 
